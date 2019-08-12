@@ -1,0 +1,1 @@
+# etkili-Sekizli-motoru
